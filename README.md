@@ -1,1 +1,1 @@
-debuga o baguio la
+se vai caga meu chapa
